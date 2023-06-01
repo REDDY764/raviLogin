@@ -27,6 +27,8 @@ bnc vbasdcbasdcsacasnc
 cvasbcvsabvb
 bcvxbcbdcbccxbb
  bdsacb sdb casbd 
+ gooogle
+ GOOGLE
 sabaS B
 csv bav
 ncd ndc nd  cnx cnbcnbxcnZ
